@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Ylli-cooker
+- 👀 I’m interested in discord coding
+- 🌱 I’m currently learning node.js
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me discord 3qzve.
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: im a person
